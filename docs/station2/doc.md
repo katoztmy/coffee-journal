@@ -15,3 +15,4 @@
 ## Station2
 
 https://www.notion.so/Station-02-1cd003b1d4c880a8ab51d35163360305
+https://industrious-universe-713.notion.site/Station2-1cd003b1d4c880a8ab51d35163360305?pvs=4 (open)
